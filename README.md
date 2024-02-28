@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Yanellix
-- 👀 I’m interested in gmod
-- 📫 How to reach me in discord: Yanelix
-- Plying in gmod, coding for gmod, living in gmod, love gmod
-- I'm 14, teach on commercial technician
-- Ready to collaborate or work with indie studios and developers
-- My schedule is dynamic, write better in discord in the evening on my time zone
+- 👀 I’m interested in gmod and cheats
+- 📫 How to reach me in discord: conn.gez
+- Plying in gmod, coding cheats and mods for gmod. From time to time i make simple projects or apps
+- I am ready to collaborate or work with indie studios and developers, or take on one-time jobs for free (although not always)
+- My schedule is dynamic, pm me in discord in the evening on my time zone if you need it
